@@ -19,3 +19,5 @@ coloque o suco de limão
 ponha o conteudo em uma travessa e leva a geladeira por 4 horas
 
 depois é só servir
+
+obs:. para outro sabor de mousse, basta colocar o suco de sua preferencia
