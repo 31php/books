@@ -22,3 +22,4 @@ depois é só servir
 
 obs:. para outro sabor de mousse, basta colocar o suco de sua preferencia
 
+obs:. o mousse tambem pode ser usado como recheio para tortas
